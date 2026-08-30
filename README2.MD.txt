@@ -11,7 +11,7 @@ When i graduated HS i always wanted with computers
 to some degree and actually i do now but not 
 exactly or even closely to how i imagined . Im older 
 now and still have these passions and the ability
- to get some of that higher education ive put off for 
- so long .
+to get some of that higher education ive put off for 
+so long .
 
 menerdcdxx
