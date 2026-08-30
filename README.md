@@ -11,3 +11,7 @@ im so excited ...
 i really want to play some xbox
 
 but i need to do homework
+
+https://github.com/menerdcdxx/week0day2/tree/main
+
+> log record initializing generating *.md files ...
